@@ -1,3 +1,3 @@
-*Unbeneficial Tips. I just wanted to write some tips. I'm Korean student.
+**Unbeneficial Tips**. I just wanted to share some tips. I'm a Korean student.
 
-If you think that you will be a superstar, buy domains which incloud you name. It will be a valuable domain.
+1. If you think you will become a superstar, buy domains that include your name. It will be a valuable asset.
